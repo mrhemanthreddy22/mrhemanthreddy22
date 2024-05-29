@@ -17,7 +17,7 @@
 🌐 Network Security | 🔍 Cyber Threat Intelligence | 🛠️ Ethical Hacking | 📈 Security Analytics
 
 🔸 Connect With Me 🔸
-📧 Email: mrhemanthreddy22@gmail.com | 🔗 LinkedIn: linkedin.com/in/hemanthreddy22/ | 🐦 Twitter: @cyberstudent
+📧 Email: mrhemanthreddy22@gmail.com | 🔗 LinkedIn: linkedin.com/in/hemanthreddy22/ | 🐦 Twitter: x.com/mrhemanthreddy2
 
 🔹 Let's Secure the Future Together! 🔹
 
