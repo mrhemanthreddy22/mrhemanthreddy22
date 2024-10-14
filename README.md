@@ -11,7 +11,7 @@
 2️⃣ **CyberAware Website:** Created a website to educate users about common cyber threats and best practices for staying safe online.
 
 🔸 Certifications 🔸
-🔐 Certified Ethical Hacker (CEH) (in progress)
+🔐 Certified Ethical Hacker (CEH) | OSCP (In Progress)
 
 🔹 Interests 🔹
 🌐 Network Security | 🔍 Cyber Threat Intelligence | 🛠️ Ethical Hacking | 📈 Security Analytics
